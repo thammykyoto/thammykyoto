@@ -1,16 +1,17 @@
-## Hi there 👋
+## Thẩm Mỹ Kyoto
 
-<!--
-**thammykyoto/thammykyoto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Phòng khám thẩm mỹ Kyoto Nhật Bản - Dr. Hiếu Liêm mang đến dịch vụ thẩm mỹ tiêu chuẩn Nhật Bản với PGS.TS.BS Phạm Hiếu Liêm là người trực tiếp thực hiện dịch vụ thẩm mỹ chất lượng cao cho Quý khách hàng.
 
-Here are some ideas to get you started:
+Thông tin liên hệ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0913 956 959 / 0913 977 959 / 02723 871 893
+
+Email: idrliempham@gmail.com
+
+Address: 656 Đường 3 Tháng 2, Phường Diên Hồng, TP.HCM
+
+- Zalo: https://zalo.me/0918000155
+
+- Maps: https://maps.app.goo.gl/z5cc4XuBFJnRkcjw6
+
+- Website: https://thammykyoto.vn/
